@@ -13,3 +13,9 @@ I'm still trying to learn how to work with GIT though it's becoming a little tri
 Hi! so I actually gave up on codewars, its just frustrating!
 But i'm loving html, css.. basically the front end.. its just beautiful!
 Almost done with the African short stories website :)
+
+
+Ihygfctugv uerbfvyegbvue uebfvuhbe reufvbivn iefvnhie
+ jnfvbhbfe j fejnjfe
+  iefnvibief
+    kjtknrfv rjvkrnfv jr tfngkrfng jrfgvnjnfv cxkmsalmekjfoijt rinj
